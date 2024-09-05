@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @JmJackman27
+- 👀 I’m interested in molecular ecology
+- 📫 How to reach me .... Email: J.Jackman@edu.salford.ac.uk
